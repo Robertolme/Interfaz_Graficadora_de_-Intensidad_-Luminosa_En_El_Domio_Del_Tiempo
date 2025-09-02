@@ -1,0 +1,1 @@
+# Interfaz_Graficadora_de_-Intensidad_-Luminosa_En_El_Domio_Del_Tiempo
